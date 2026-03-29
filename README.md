@@ -3,8 +3,19 @@
 
 - 📫 How to reach me **aarizsheikh.uk@gmail.com**
 
-- ⚡ Fun fact **I think im dumb**
+-## About Me
+- 😏 Lover of random adventures and weird ideas  
+- 🐉 Big fan of dark fantasy vibes  
+- 🎮 Sometimes I game, sometimes I overthink  
+- 🍕 Pizza > literally everything  
+- ☕ Powered by caffeine and chaos  
+- 😹 Can talk to inanimate objects and sometimes they answer back (maybe)  
 
+## Fun Facts About Me
+- I laugh at my own jokes… a lot  
+- I collect random useless knowledge like a hoarder  
+- I once stayed up thinking about life and dragons at the same time  
+- I have a talent for making things slightly awkward, unintentionally  
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/maybeaariz" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="maybeaariz" height="30" width="40" /></a>
