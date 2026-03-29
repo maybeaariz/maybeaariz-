@@ -6,15 +6,12 @@
 -## About Me
 - 😏 Lover of random adventures and weird ideas  
 - 🐉 Big fan of dark fantasy vibes  
-- 🎮 Sometimes I game, sometimes I overthink  
-- 🍕 Pizza > literally everything  
 - ☕ Powered by caffeine and chaos  
 - 😹 Can talk to inanimate objects and sometimes they answer back (maybe)  
 
 ## Fun Facts About Me
 - I laugh at my own jokes… a lot  
 - I collect random useless knowledge like a hoarder  
-- I once stayed up thinking about life and dragons at the same time  
 - I have a talent for making things slightly awkward, unintentionally  
 <h3 align="left">Connect with me:</h3>
 <p align="left">
