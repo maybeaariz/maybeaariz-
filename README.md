@@ -10,7 +10,6 @@
 - 😹 Can talk to inanimate objects and sometimes they answer back (maybe)  
 
 ## Fun Facts About Me
-- I laugh at my own jokes… a lot  
 - I collect random useless knowledge like a hoarder  
 - I have a talent for making things slightly awkward, unintentionally  
 <h3 align="left">Connect with me:</h3>
